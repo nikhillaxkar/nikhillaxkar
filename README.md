@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/nikhillaxkar](https://github.com/nikhillaxkar)
 
-- 📫 How to reach me **nikhil07laxkar@gmail.com**
+- 📫 How to reach me **nikhil08laxkar@gmail.com**
 
 - ⚡ Fun fact **I am funny😀**
 
